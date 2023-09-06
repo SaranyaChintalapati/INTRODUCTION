@@ -1,5 +1,5 @@
 # INTRODUCTION
-##Name: Saranya Chintalapati
+## Name: Saranya Chintalapati
 
 ![linkedIn prof pic updated_3](https://github.com/SaranyaChintalapati/INTRODUCTION/assets/111243308/accb5353-0fb9-4476-9cb8-d5566f033030)
 
